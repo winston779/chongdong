@@ -1,6 +1,6 @@
 # 虫洞云机场官网地址
 
-最新地址：[cd55yun.com](https://cd55yun.com/auth/register?code=Z1kc)
+最新地址：[cd88888.cc](https://cd88888.cc/auth/register?code=Z1kc)
 
 ## 虫洞云机场简介
 
