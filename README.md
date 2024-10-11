@@ -1,6 +1,6 @@
 # 虫洞云机场官网地址
 
-最新地址：[cd88.de](https://cdweb.bfvgtc.cn/#/register?code=zA65cMCS)
+最新地址：[cd88.de](https://cdweb.jjjxgc.com/#/register?code=zA65cMCS)
 
 ## 虫洞云机场简介
 
